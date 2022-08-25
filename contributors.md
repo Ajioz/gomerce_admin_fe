@@ -1,0 +1,1 @@
+* [Vanessa Osuka](https://linkedin.com/in/vanessa-i-osuka)
